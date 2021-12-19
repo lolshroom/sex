@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Fuck BLM
 
 You can use the [editor on GitHub](https://github.com/lolshroom/sex/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
